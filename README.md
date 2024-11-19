@@ -1,1 +1,1 @@
-# gabrielthedataanalyst.github.io
+# gabrieltheanalyst.github.io
